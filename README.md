@@ -1,0 +1,2 @@
+# Galeri-linda
+Kekasih hatiku
